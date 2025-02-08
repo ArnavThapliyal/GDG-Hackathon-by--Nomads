@@ -1,1 +1,0 @@
-# GDG-Hackathon-by--Nomads
